@@ -1,1 +1,1 @@
-{rubika:"",shad:""}
+{rubika:"hkcjjcjd",shad:"kdjddh"}
